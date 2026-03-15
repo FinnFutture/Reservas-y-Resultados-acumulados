@@ -1,1 +1,2 @@
 # Reservas-y-Resultados-acumulados
+Las reservas constituyen una de las formas más difundidas de retener utilidades sin proceder a su capitalización, adoptando diversas denominaciones según sea su destino eventual o la razón de su creación. Hay ocasiones en que se utilizan cuentas denominadas reservas, pero que en realidad no revisten el carácter de las que se está tratando, pues corresponden a cargos por diversos conceptos, previsiones o provisiones que deben deducirse de las utilidades y que se consideran en las restantes modalidades de financiamiento. 
